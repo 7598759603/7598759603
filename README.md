@@ -2,7 +2,7 @@
 - 👀 I’m interested in Playing 
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate with you
-- 📫 How to reach me through my mail : saiharib2005@gmail.com
+- 📫 Reach me through my mail : saiharib2005@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
